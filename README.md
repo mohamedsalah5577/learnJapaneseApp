@@ -1,4 +1,0 @@
-# learnJapaneseApp
-# learnJapanese
-# learn
-# learnJapanese
